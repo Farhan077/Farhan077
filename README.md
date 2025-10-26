@@ -8,7 +8,7 @@ FarhanMahdi / README.md
 
 🤝 I’m looking to collaborate on ... AI-driven data analysis and automation projects
 
-📧 How to reach me ... [your.email@example.com
+📧 How to reach me ... [fms.shaikat2828@gmail.com
 ]
 
 😄 Pronouns: ... he/him
